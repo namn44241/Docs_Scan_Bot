@@ -11,5 +11,4 @@ https://www.youtube.com/shorts/va7M5U6Gf0c
 [@namnguyenriptcns](https://t.me/namnguyenriptcns)
 
 # Buy me a coffee if it helps you... Every little support keeps the project going!
-![alt text](image.png)
 ![image](https://github.com/user-attachments/assets/4f7a788d-bdb7-42a0-bb3c-716f3a8f39d3)
